@@ -1,4 +1,5 @@
-### Hi there 👋
+### Hi there 👋 i'm hwangstone !!
+### 👯 I am looking for a company to work
 
 <!--
 **hwangstone1/hwangstone1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
