@@ -1,4 +1,4 @@
-### 🌱  Hi there 👋 i'm hwangstone !!
+### 🤔  Hi there 👋 i'm hwangstone !!
 ### ⚡ I am looking for a company to work
 
 <!--
